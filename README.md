@@ -1,1 +1,1 @@
-<img src="https://i.gifer.com/7kxS.gif" />
+<img src="https://media.tenor.com/X_ZEgLPB-1MAAAAM/chud-chudjak.gif" />
